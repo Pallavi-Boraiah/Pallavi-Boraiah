@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Pallavi-Boraiah
 - 👀 I’m interested in ...learning new things:)
 - 🌱 I’m currently learning ...from edureka 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ...startup business ideas
 - 📫 How to reach me ...
 
 <!---
